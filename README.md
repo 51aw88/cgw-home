@@ -10,11 +10,11 @@
 爆料特色：快、狠、准，不过夜的大瓜
 
 🧭 51暗网总导航页
-🔥51暗网大陆入口 🔥 https://51awb9.com
+🔥51暗网大陆入口 🔥 https://51awb10.com
 
 🔥51暗网永久主页🔥  https://51awb.com
 
-💥51暗网app免翻墙下载链接💥https://aw.yxiykvv.xyz 
+💥51暗网app免翻墙下载链接💥https://aw.hkjizdi.xyz 
 
 💥51暗网app永久下载链接💥https://51awapp.com
 
